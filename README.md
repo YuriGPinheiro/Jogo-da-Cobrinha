@@ -1,1 +1,1 @@
-Este jogo e so um teste mais jogue é um clássico e se divirta !!!
+Este jogo é só um teste mas jogue é um clássico e se divirta !!!
